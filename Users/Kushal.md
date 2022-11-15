@@ -1,2 +1,2 @@
 This is Kushal Singh
-Admin of this project
+2 rupye ke pepsi kushal bhaye sexy
